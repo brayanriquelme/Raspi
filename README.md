@@ -1,3 +1,3 @@
-# Raspi
-#Hola
-#Manu ama a migue pero dani ama a emir pero emir a ma a brayo :/ probes putas </3
+
+#Manu ama a migue pero dani ama a emir pero emir ama a brayo :/ pobres putas </3
+Pero Yo... amor tu culo
